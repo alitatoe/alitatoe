@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alitatoe
+- 👀 I’m interested in games, horror and art
+- 🌱 I’m currently learning to exist
+- 💞️ I’m looking to collaborate on fun projects
+- 📫 I know who needs to contact me
